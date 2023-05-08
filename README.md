@@ -38,7 +38,7 @@ A civilização chinesa sempre foi oprimida por diferentes razões. Por sua cult
 
 Provérbios chineses curtos
 Sem demora, vamos ver alguns dos provérbios chineses mais conhecidos e seus significados .
-
+<img width="30000px" height="200" src="https://i.pinimg.com/originals/6e/f3/a2/6ef3a238bdbe03012c26bca9c58fd500.gif">
 1. As pessoas arrumam seus cabelos todos os dias. Por que não o coração?
 Uma reflexão sobre nosso modo de vida: somos muito obcecados em nossa imagem e pouco em nossos sentimentos .
 
@@ -68,6 +68,7 @@ Uma frase para prevenir contra inimigos que se apresentam como amigos.
 
 10. Cave o poço antes de ficar com sede.
 Prevenir é uma boa ideia.
+<img width="30000px" height="200" src="https://i.pinimg.com/originals/6e/f3/a2/6ef3a238bdbe03012c26bca9c58fd500.gif">
 
 11. O homem sábio não diz o que sabe, e o tolo não sabe o que diz.
 Reflexão interessante sobre inteligência e astúcia.
@@ -102,6 +103,7 @@ Sempre começa na parte inferior.
 
 20. Quando três marcham juntos, deve haver um para comandar.
 Sem um líder, não há projeto que possa ser concretizado.
+<img width="30000px" height="200" src="https://i.pinimg.com/originals/6e/f3/a2/6ef3a238bdbe03012c26bca9c58fd500.gif">
 
 21. A água flutua no navio, mas também pode afundá-lo.
 Nada é intrinsecamente ruim ou bom, depende de como o usamos.
@@ -137,6 +139,7 @@ Um erro de cálculo pode nos deixar tocados por um longo tempo.
 
 30. Não veja o importante tendo a visão obstruída pelo trivial.
 Uma frase análoga ao espanhol: “Veja a palha no olho estrangeiro”
+<img width="30000px" height="200" src="https://i.pinimg.com/originals/6e/f3/a2/6ef3a238bdbe03012c26bca9c58fd500.gif">
 
 31. Gato escaldado, a água fria foge.
 Más experiências nos ajudam a ser evitados no futuro.
@@ -172,6 +175,7 @@ O crescimento pessoal nos ajuda a ser melhor a cada dia.
 
 40. Quem cede, abre caminho.
 A bondade tem uma recompensa global.
+<img width="30000px" height="200" src="https://i.pinimg.com/originals/6e/f3/a2/6ef3a238bdbe03012c26bca9c58fd500.gif">
 
 41. Quem pisa suavemente vai longe.
 Sem fazer muito barulho e com constância, você vai muito mais longe e com menos obstáculos.
@@ -201,6 +205,7 @@ Provérbio com corantes pessimistas.
 Repetição indica uma tendência.
 
 50. Nunca mate uma mosca na cabeça de um tigre.
+<img width="30000px" height="200" src="https://i.pinimg.com/originals/6e/f3/a2/6ef3a238bdbe03012c26bca9c58fd500.gif">
 
 As conseqüências indiretas do que fazemos podem ser imprevisíveis.
 51. Para quem não sabe para onde quer ir, todas as estradas servem.
@@ -233,6 +238,7 @@ Um aforismo interessante sobre como o contexto nos modifica.
 
 60. É mais fácil saber como algo é feito do que fazê-lo.
 A prática é sempre mais fácil que a teoria.
+<img width="30000px" height="200" src="https://i.pinimg.com/originals/6e/f3/a2/6ef3a238bdbe03012c26bca9c58fd500.gif">
 
 61. Não coloque a panela no fogo se o cervo ainda estiver correndo na floresta.
 Não preveja os melhores cenários possíveis.
@@ -263,6 +269,7 @@ Zombaria sobre mecanismos de justiça.
 
 70. A sabedoria consiste em saber que se sabe o que é conhecido e em saber que não se sabe o que não é conhecido.
 Um aforismo sobre sabedoria.
+<img width="30000px" height="200" src="https://i.pinimg.com/originals/6e/f3/a2/6ef3a238bdbe03012c26bca9c58fd500.gif">
 
 Espero que você tenha gostado da coleção de provérbios chineses. Eu queria destacar as principais características dos diferentes pensadores como Confúcio; portanto, se você acha que pode contribuir com um provérbio que não consta da lista, estou aberto a isso .
 
