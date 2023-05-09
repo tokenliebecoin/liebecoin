@@ -27,10 +27,7 @@ it´s is criptocurrency value in world
   
   </pre>
 <Pre><h8><i>
-70 provérbios chineses sobre sabedoria, amor, vida e trabalho
-70 provérbios chineses sobre sabedoria, amor, vida e trabalho 1
 
-Hoje, trazemos a você uma compilação de Provérbios Chineses que têm a ver com diferentes aspectos da vida , especialmente sobre sabedoria e amor.
 
 
 A civilização chinesa sempre foi oprimida por diferentes razões. Por sua cultura de classe, por ditadores políticos … Mas eles sempre encontraram uma maneira de criar uma cultura forte em seu país, o que faz a diferença e que muitas vezes subestimamos do Ocidente. Dedicação, esforço e valores morais são características distintivas da idiossincrasia chinesa.
