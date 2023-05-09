@@ -10,14 +10,14 @@ it´s is criptocurrency value in world
  <p>&#129498<pre>
   <h3><n>
   Liebe Coin e um token de tecnologia bep20 (binance), rapido e eficiente para uso.
-  é um token estavel que é acordado na rede para ser trocado no valor de U$0.01 cada
+  é um token estavel que é acordado na rede para ser trocado no valor de U$0.02 cada
   seu fornecimento total de mercado 998.000.000.000,00 que não são queimados , 
   foi fundada em uma noite de leitura onde seu fundador encontrou este nome em um dos curso de 
   liguagem estrangeira e achou o nome liebe (amor) interessante para fazer um token
   como outrora não tinha um objetivo especifico hoje tem o de levar evoluções para 
-  sociedade através de novos empreendimento.
+  sociedade através de novos empreendimentos.
  só esta a esperando pela liberação smart chain binance criptoative .
-  já PG:zagat
+ Paz na terra para homens e mulheres de  honestidades inilibadas!!!!!
 </n></h3>
   
   
