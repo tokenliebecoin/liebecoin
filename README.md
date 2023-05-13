@@ -277,11 +277,11 @@ De qualquer forma, espero que você goste e compartilhe. Uma saudação!
 
 
   </p>falta pouco só esta conecção:
-  <p>  <img width="255px" height="205px"src="https://i.pinimg.com/originals/3a/e8/72/3ae872773d4c5545b78f57d54fb1aea3.png"></p>
+  
  <p>  <img width="255px" height="205px"src="https://i.pinimg.com/originals/a7/20/36/a720361bfeaeab238531514c37d49dae.png"></p>
  
  
-  <p>  <img width="255px" height="205px"src="https://i.pinimg.com/originals/ba/d9/3f/bad93f89f10ab089d63898a06d6d7d95.png"></p>
+  
   <p>&#128152</p> 
   <doc type><head><meta charset="utf-8"></head><body>
 **liebecoin/liebecoin** is a ✨ _special_ ✨
